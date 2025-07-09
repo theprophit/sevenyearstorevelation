@@ -1,1 +1,1 @@
-# sevenyearstorevelation
+seven day to revelation
